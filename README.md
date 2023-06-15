@@ -7,8 +7,8 @@
 
 - 📫 How to reach me **ANIKETHOLSUMBRE2002@GMAIL.COM**
 
-- ⚡ Fun fact **I AM GAY**
-
+- ⚡ Fun fact ***homosapien are not realy homo**
+- 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://instagram.com/aniket_h_20" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/instagram.svg" alt="aniket_h_20" height="30" width="40" /></a>

@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **ANIKETHOLSUMBRE2002@GMAIL.COM**
 
-- ⚡ Fun fact ***homosapien are not realy homo**
+- ⚡ Fun fact **homosapien are not realy homo**
 - 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
